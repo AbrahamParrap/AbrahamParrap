@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 809-777-3655 ws
 - 😄 Pronouns: Parra
-- ⚡ Fun fact: Skate and travel on bikes
+- ⚡ Fun fact: ...
 
 <!---
 AbrahamParrap/AbrahamParrap is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
